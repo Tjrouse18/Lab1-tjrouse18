@@ -11,3 +11,4 @@ In the past month I have been been studying hard with calc 2 and hanging out wit
 To organize my work I have seperate binders for each class and different note taking stratagies for each
 
 -This is a test
+cool
