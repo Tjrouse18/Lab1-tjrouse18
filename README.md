@@ -8,6 +8,6 @@ I tell people that it is upcoming and the job oppertunities are growing at a tre
 
 In the past month I have been been studying hard with calc 2 and hanging out with my friends
 
-To organize my work I have seperate binders for each class and differnt note taking stratagies for each
+To organize my work I have seperate binders for each class and different note taking stratagies for each
 
 -This is a test
